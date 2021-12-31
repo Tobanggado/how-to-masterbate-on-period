@@ -1,37 +1,21 @@
-## Welcome to GitHub Pages
+<h1>How To Masterbate On Period</h1>
 
-You can use the [editor on GitHub](https://github.com/Tobanggado/how-to-masterbate-on-period/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
-
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Tobanggado/how-to-masterbate-on-period/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+<div id="toc" style="background: #f9f9f9;border: 1px solid #aaa;display: table;margin-bottom: 1em;padding: 1em;width: 350px;"><p class="toctitle" style="font-weight: 700;text-align: center;">Content</p><ul class="toc_list"><li><a href="#toc-0">Archived Posts</a></li><li><a href="#toc-1">What To Do If You Havent Had Your Interval For Months?</a></li><li><a href="#toc-2">Islamicsunrays Com: Finding Hope And Inspiration In Islam</a></li><li><a href="#toc-3">Mind Damage Consciousness Month</a></li><li><a href="#toc-4">Answers To Prostate Most Cancers Questions</a></li><li><a href="#toc-5">Issues In Jewish Ethics:  	 			 	 "kosher" Intercourse</a></li><li><a href="#toc-6">Hematospermia And Prostate Most Cancers</a></li></ul></div>
+<p>Now I can rely on one hand how many instances I’ve had sex along with her in the past 6 months. I thought maybe it was because I was so busy and drained with work and that I didn’t exercise enough. She is craving it and asking why I’m not like earlier than. This crossed my thoughts several instances already but after actuallly researching and reading different people’s story, I’m getting scared.</p>
+<div itemScope itemProp="mainEntity" itemType="https://schema.org/Question">  <div itemProp="name"><h2>Does period blood entice sharks?</h2></div>  <div itemScope itemProp="acceptedAnswer" itemType="https://schema.org/Answer">      <div itemProp="text"><p>Medical Mythbuster: Will Swimming in the Ocean During Your Period Attract Sharks? While it is true that a shark's sense of smell is highly effective and that menstrual fluid incorporates blood, there isn't any scientific proof that ladies swimming within the ocean while having their period usually have a tendency to be bitten by a shark.</p></div>  </div></div>
+<p>I’ve learn WomanCode too, however not likely positive what to eat/when since I too don’t have a cycle to sync with. I’m 31 years old I didn’t get my interval on this month at all and I’m not pregnant can my period simply cease due to my age please help I’m getting worry about it. I would start by having your mom arrange an appointment with the Obgyn – you possibly can discuss your concerns and the doctor should have the power to run some diagnostics to see if there is anything incorrect. BALANCE by FLO Living is the FIRST supplement package for happier periods that supports balancing your hormones. Balance Supplements include five formulations that provide essential micronutrients to balance your hormones. Think of them as your personal “insurance policy” against environmental components which are zapping your power every month.</p>
+<h2 id="toc-0">Archived Posts</h2>
+<p>God does speak to us through His Word, and I believe He has spoken and that masturbation isn't a great factor. God never meant this for us, so you may be right in one sense, but if a person is abiding in Christ, would they do this? It is sin to he who it is sin, since what just isn't of religion is sin, so you cannot communicate for others if they feel it is sin as a result of to them, it's.</p>
+<div style='text-align:center'><iframe width='564' height='314' src='https://www.youtube.com/embed/r_SbPoadLuA' frameborder='0' alt='how to masterbate on period' allowfullscreen></iframe></div>
+<p>The quantity of misery this drug has triggered me is difficult to place into words, however hopefully collectively we'll find some approach to get via this. I noticed a major lower in sexual libido, and female dryness over the past 2 years. None of which had been a difficulty previously. After studying many various stories, articles, and literature about Accutane products I am leaning more towards the reality that this very properly may be of my very own doing by taking Clarivis. I’m not saying there can’t be different factors,however this has been with me for 8 years and Prozac was just for about 7 mo. I thought after stopping issues would improve, but it’s been a full year since I’ve taken Prozac and I’ve solely had possibly four Clarvis drugs in that same time.</p>
+<h3 id="toc-1">What To Do When You Havent Had Your Period For Months?</h3>
+<p>The emperors of this era have been Nerva (96–98), Trajan (98–117), Hadrian (117–138), Antoninus Pius (138–161) and Marcus Aurelius (161–180), each being adopted by his predecessor as his successor through the latter's lifetime. Vespasian (69–79) Vespasian was a remarkably profitable Roman basic who had been given rule over much of the eastern part of the Roman Empire. He had supported the imperial claims of Galba; nonetheless, on his death, Vespasian became a major contender for the throne. After the suicide of Otho, Vespasian was capable of hijack Rome's winter grain provide in Egypt, inserting him in a good place to defeat his remaining rival, Vitellius. On December 20, sixty nine, some of Vespasian's partisans had been in a place to occupy Rome.</p>
+<div itemScope itemProp="mainEntity" itemType="https://schema.org/Question">  <div itemProp="name"><h2>Does lemon stop your periods?</h2></div>  <div itemScope itemProp="acceptedAnswer" itemType="https://schema.org/Answer">      <div itemProp="text"><p>No. Drinking a shot of lemon juice won't delay your interval or make it cease. Using a hormonal birth control methodology is the only method to lighten or control if you get your interval: When taking a hormonal contraception method, just like the tablet, ring, and patch, you might have the ability to skip your interval.</p></div>  </div></div>
+<p>I meet with a quantity of individuals in the Princeton administration, and the response is — simply put — “He wouldn’t do this.” I’m speechless. It seemed like nobody was keen to rock the boat with a senior professor. Faculty politics matter greater than I do. Reading the under, it’s unbelievable how trivial some of it seems on reflection. At the time, though, it was the right storm. Like that time I met an icon by by chance hitting on his girlfriend at a espresso shop?</p>
+<h2 id="toc-2">Islamicsunrays Com: Discovering Hope And Inspiration In Islam</h2>
+<p>The fertility benefits of this practice are obvious and plain. In truth, it is outstanding how closely these legal guidelines parallel the recommendation given by medical professionals right now. Logically speaking, everyone is high male enhancement medication equal, but in reality, high male enhancement medication this isn't effects of erectile dysfunction the case. According to the author, wei bei is the most effective calligraphy type in now male sexual enhancement tablets over counter Doctors In Brooklyn For Erectile Dysfunction the history of calligraphy. They have a powerful personal mark, so they are extremely popular among the Viagra May Help Fight Heart Failure giving husband tablets to lower intercourse drive tumbler folks.</p>
+<div itemScope itemProp="mainEntity" itemType="https://schema.org/Question">  <div itemProp="name"><h2>How do you flush out your period?</h2></div>  <div itemScope itemProp="acceptedAnswer" itemType="https://schema.org/Answer">      <div itemProp="text"><p>To remove menstrual blood stains, observe the identical recommendation for removing regular bloodstains out of your clothing. Rinse the items underneath cold operating water to remove many of the stain. Then deal with with slightly soap.</p></div>  </div></div>
+<p>Hi iam 23 year old I actually have been deeling with this downside maybe a 12 months ago. When I first saw that is scared the crap out of me so I started working out runing drinking water and a diet. It stopped ,last week I was having sex with my girl I ejaculated and blood 95%.. I was scared it’s been 2 months and it’s nonetheless occurring . I went o the doctor and too antibiotics 1week .. I took three days off masterbating I checked agin the Same problems .</p>
+<h3 id="toc-3">Mind Harm Awareness Month</h3>
+<p>I may as well be taking a glance at a rock or a tree. With the libido and arousal issues I also have fairly unhealthy erectile dysfunction. I am able to have intercourse, however I fail to get an erection/maintain it about half the time and have an extremely onerous time getting aroused in the first place. Luckily orgasms are still pleasurable to an honest degree for me.</p>
+<ul><li>Nd again after dat nthng fr a complete month and then in jan der was once more spotting which lasted fr a mnth.</li><li>ESPECIALLY NOT IF IM DO8NG A BETTER JOB AT PLEASING MY SIGNIFICANT OTHER!</li><li>This tablet brought on me to have dry eye syndrome.</li><li>I can actually settle for another lady at this point, but if our household is breaking apart over some stupid zits drug, or it’s a mix of 1 feeding into the other, I guess time will solely tell.</li><li>If you want sex even somewhat bit, know that that enjoyment could all be taken from you if you take Accutane.</li></ul>
